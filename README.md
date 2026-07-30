@@ -3,7 +3,6 @@
 dni (do not interact):
 proship, homophobes, trump supporters, darkship, and anyone who justifies the things listed above. I block freely!
 
--
 
 I go by she/her and prefer that but I dont mind if you use different pronouns.
 
@@ -16,7 +15,7 @@ Infj-t - introverted, Intuitive, and deep thinkers who are turbulent advocates, 
 
 ~ about me !
 
-I’m lena!! I use she/her - 14
+I’m lena!! I use she/her
 omni with a fem pref, and demisexual
 I’m a leftist and I’m agnostic. I dress in like 70s whimsigoth and other alt subcultures.
 
